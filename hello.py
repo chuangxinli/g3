@@ -1,2 +1,2 @@
-hello frends 
+hello fresssnds 
 hello world
