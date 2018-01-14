@@ -1,4 +1,4 @@
-aaaa
-bbbb
-eeeeessseeee
-rrrrrrrsssrrrrrr
+aasssaa
+bbwwwbb
+eewwweeessseeee
+rrfffSrrrrrsssrrrrrr
